@@ -1,16 +1,35 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**dwjky/dwjky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+：“了消息怎么办？”
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+沐斓她的眼神更像是看啥子了，“一会儿冰雪聪明一会儿又笨得让人头疼，这种问题你就别考虑了，走了，吃饭。”
+
+周夏听不得“笨”这个字，当下就追着沐斓打了起来。
+
+锦晏笑着摇了摇头，刚要离开别墅，手机响了，看到是霍彪，她立即接了起来，“爸爸。”
+
+“宝贝在哪儿？仓库吗？”霍彪看着她身后的背景。
+
+锦晏将镜头切换，给霍彪看了一下满地的物品，随后又将摄像头对准自己，“这里是沐哥的别墅，昨天采购了一些东西，今天下午过来我们收拾了一下。”
+
+霍彪神色如常，并没有问他们为什么要采购东西，而是说：“你们？”
+
+锦晏：“我们四个。”
+
+“黎家那个女儿走了？”霍彪问。
+
+锦晏点头，“我让她离开了。”
+
+霍彪脸上露出欣慰的笑，“你妈妈原本担心你会被那个女孩子伤害，我说我的宝贝女儿很聪明，她看人的眼光也很准，她知道什么时候该做什么事。”
+
+对于霍彪这种无时无刻夸奖自家女儿的行为，楼棣听得次数太多，已经习以为常了。
+
+但每次听到，总会从心底升起佩服。
+
+他不觉得他以后当了父亲也能做到霍彪这样。
+
+两人走出别墅，楼棣去关门了，锦晏跟霍彪说着话，“爸爸，天什么时候黑呢？”
+http://huluntunzao.pics
+霍彪温柔地看着她，“天总会黑，
